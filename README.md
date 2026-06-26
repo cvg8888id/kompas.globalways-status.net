@@ -1,0 +1,1 @@
+# kompas.globalways-status.net
